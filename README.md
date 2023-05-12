@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do pardalzincwb 😁
+## Bem-vindo(a) ao perfil do Eduardo! 😁
 
  <div>
    <a href="https://github.com/pardalzincwb">
